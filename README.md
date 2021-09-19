@@ -1,2 +1,12 @@
 # trananhnetflix.github.io
-𝗧𝗥𝗔𝗡𝗔𝗡𝗛 | 𝗣𝗥𝗘𝗠𝗜𝗨𝗠 𝗔𝗖𝗖𝗢𝗨𝗡𝗧 Product/Service Cung cấp tài khoản bản quyền với giá cực ưu đãi.
+𝗧𝗥𝗔𝗡𝗔𝗡𝗛 | 𝗣𝗥𝗘𝗠𝗜𝗨𝗠 𝗔𝗖𝗖𝗢𝗨𝗡𝗧 
+Cung cấp tài khoản bản quyền với giá cực ưu đãi.
+𝐍𝐞𝐭𝐟𝐥𝐢𝐱
+𝐒𝐩𝐨𝐭𝐢𝐟𝐲 𝐏𝐫𝐞𝐦𝐢𝐮𝐦
+𝐘𝐨𝐮𝐭𝐮𝐛𝐞 𝐏𝐫𝐞𝐦𝐢𝐮𝐦
+𝐄𝐥𝐬𝐚 𝐒𝐩𝐞𝐚𝐤 𝐏𝐫𝐨
+𝗚𝗿𝗮𝗺𝗺𝗮𝗿𝗹𝘆
+𝐂𝐚𝐧𝐯𝐚 𝐏𝐫𝐨
+𝗗𝗶𝘀𝗻𝗲𝘆+
+𝐙𝐨𝐨𝐦 𝐏𝐫𝐨
+𝗺𝘆𝗞+
